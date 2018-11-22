@@ -1,1 +1,0 @@
-# versaoupdate19
